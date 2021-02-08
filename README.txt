@@ -25,3 +25,6 @@ ______________________________________________________________________
 AUTHOR KRAID
 AKA ANGSH
 ______________________________________________________________________
+Special credits:-
+----------------------------
+AnoirX(my elder sister) for providing the background. {it was fun stealing it tbh}
