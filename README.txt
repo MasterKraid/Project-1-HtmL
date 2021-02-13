@@ -1,6 +1,6 @@
 Hi there fellow reader!!!
 
-so this is my first HTmL Project that i am sorking on.
+so this is my first HTmL Project that i am working on.
 
 Creation date:- 23rd Jan 2021
 
